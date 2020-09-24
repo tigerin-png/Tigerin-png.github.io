@@ -1,4 +1,4 @@
 # Tigerin-png.github.io
-my pags
+my page
 Ramita Thongdonam
 รมิตา ทองดอนอ่ำ
